@@ -1,4 +1,5 @@
 # repetitions Silver Band
+
 séance du 18 juin 2026  
 [La bombe humaine](https://drive.google.com/file/d/1K3c1H7uMjj3ZcUj8YvUcQniez5Odb2QK/view?usp=sharing)  
 [Chanson sur ma drôle de vie v1](https://drive.google.com/file/d/1PoI-tV38yfSXt7UwlapqgU90esh_z2Rh/view?usp=sharing)  
@@ -8,5 +9,3 @@ séance du 18 juin 2026
 [J'ai demandé à la lune v1](https://drive.google.com/file/d/1s8G0oJwpSrH-hapV5wTnZCbIY_IYHYss/view?usp=sharing)  
 [J'ai demandé à la lune v2](https://drive.google.com/file/d/1j30qYGA3pMWyvFkmYqtk2TcEzQO_GKe3/view?usp=sharing)  
 
-
- 
