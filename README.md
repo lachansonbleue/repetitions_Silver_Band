@@ -1,5 +1,5 @@
 # repetitions
-le 18 juin 2026
+séance du 18 juin 2026  
 [La bombe humaine]()  
 [Chanson sur ma drôle de vie v1]()  
 [Chanson sur ma drôle de vie v2]()  
